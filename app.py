@@ -1,3 +1,3 @@
 ame yabai kyou
 
-tekitou
+new
