@@ -1,0 +1,2 @@
+ame yabai kyou
+
